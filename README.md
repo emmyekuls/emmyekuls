@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding,data analysis, cyber security. 
 - 🌱 I’m currently learning data science
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me 08078475117
+- 📫 How to reach me 09167650264
 - 😄 Pronouns: He. 
 - ⚡ Fun fact: I love making research and gymnastics. 
 
